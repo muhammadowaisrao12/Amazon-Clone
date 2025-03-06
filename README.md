@@ -1,4 +1,4 @@
-https://raomuhammadowais.github.io/amazon/
+https://muhammadowaisrao12.github.io/Amazon-Clone/
 
 
 <h1>
